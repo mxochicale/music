@@ -1,11 +1,35 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+### Upgrade Soundtrack
+
+> "experimental computer chip implant called Stem" https://en.wikipedia.org/wiki/Upgrade_(film)
+
+The album features the film’s original music composed by Jed Palmer (OtherLife) [:link:](http://filmmusicreporter.com/2018/05/30/upgrade-soundtrack-details/)
+
+* [Playlist](https://www.youtube.com/playlist?list=PLUymXm_tw18s3Zjz8NXNQc3UA0pBGk7G6)
+
+added: Wed Aug 22 22:03:37 BST 2018
+
+
+### Demis Hassabis selection of tracks at Desert Island Discs!
+
+> "Kirsty Young's castaway is Dr Demis Hassabis. An artificial intelligence researcher and co-founder and CEO of DeepMind, he is also a neuroscientist, a computer games designer, an entrepreneur, and in his youth, a world-class chess player" https://www.bbc.co.uk/programmes/b08qy1sl
+
+
+Playlist: 
+
+http://www.youtube.com/watch_videos?video_ids=ZZKkxAQYxyE,NO5tb20qQnA,H7_ajdd99CM,pzwETNnUlKk,jYMUyjq0yLA,_Jtpf8N5IDE,wz7YiQdNmZ8,daW_qSxAUao
+
+How to create a youtube play list: https://www.labnol.org/internet/create-youtube-playlists/28827/
+
+added June 2018
+
+
+
 ### jazz fussion
 
 https://www.facebook.com/LucidJazzFusion/?hc_ref=ARRZoCXFW8DXFcehMFuHIQlyDVwZ38qK-Mbv9g0_zQL6fC2EVDmzVeiRcYbNeYnoOcQ
-
-
 
 
 

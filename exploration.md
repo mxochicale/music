@@ -1,6 +1,29 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+### 50 euro to break boost and "there is HOPE"
+
+> Skee Mask is a versatile producer from Munich, who doesn’t want to be identified. http://iliantape.de/skee-mask/
+
+https://soundcloud.com/ilian-tape/skee-mask-50-euro-to-break-boost
+
+TWITTER: https://twitter.com/sk33mask
+
+
+* from the same music label, ilian tape, i found this lovely one:
+
+There is hope ... [:musical_note:](https://www.youtube.com/watch?v=8c0kg2TMLE4) Ther
+
+TWITTER: https://twitter.com/dariozenker
+more: https://twitter.com/dariozenker
+
+
+
+added: Thu Aug 23 20:19:40 BST 2018
+
+
+
+
 ### Upgrade Soundtrack
 
 > "experimental computer chip implant called Stem" https://en.wikipedia.org/wiki/Upgrade_(film)

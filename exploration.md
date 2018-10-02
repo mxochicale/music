@@ -1,6 +1,36 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+### Cosmic Black Metal
+
+> Beyond the last known barrier..
+> A platform where you'll be able to unveil and discover 
+> the darkest places and soundscapes of the universe
+
+https://www.youtube.com/watch?v=48eumX4n17w&list=UUh1Kbh5Ln8tMJ_h7IykOFkg
+
+added: Tue Oct  2 16:35:46 BST 2018
+
+
+### Atmospheric Black Metal Albums
+
+> A place for you to escape for a moment from the world and enjoy 
+> the best Atmospheric/Ambient Black Metal albums/Dark 
+> Ambient/Ambient/Medieval/Dungeon Synth releases.
+> The sole purpose of this platform is to give the listener a 
+> unique experience by portraying diverse releases of this specific 
+> genre of music and at the same time, giving bands / musical projects 
+> and labels, exposure and promotion.
+
+https://www.youtube.com/watch?v=Nn0V-FKm5KY&list=UUDLkzWN1rHY4eYkGnVruHVw
+
+
+added: Tue Oct  2 16:38:01 BST 2018
+
+
+
+
+
 ### 50 euro to break boost and "there is HOPE"
 
 > Skee Mask is a versatile producer from Munich, who doesn’t want to be identified. http://iliantape.de/skee-mask/

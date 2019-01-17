@@ -1,6 +1,17 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+### At Eternity's Gate (Original Motion Picture Soundtrack) [film](https://en.wikipedia.org/wiki/At_Eternity%27s_Gate_(film))
+
+> “I don't know anything with certainty, but seeing the stars makes me dream.”  ― Vincent Van Gogh
+
+https://www.youtube.com/playlist?list=OLAK5uy_kH9zDxbD939bs0V_qEoLWa-sOkocX-KVE
+
+added: Thu Jan 17 14:34:49 GMT 2019
+
+
+
+
 ### Cosmic Black Metal
 
 > Beyond the last known barrier..

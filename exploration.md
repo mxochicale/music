@@ -1,6 +1,18 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+### First Man (Original Motion Picture Soundtrack) 
+[First Man](https://en.wikipedia.org/wiki/First_Man_(film)) 
+(Original Motion Picture Soundtrack) by [Justin Hurwitz](https://en.wikipedia.org/wiki/Justin_Hurwitz).
+
+> "It had to have a sense of loneliness but also beauty," said Hurwitz. 
+> "Like when he gets to the moon – you're on this barren surface; 
+> it's all very beautiful, but it's very, very lonely." 
+
+https://www.youtube.com/watch?v=uz1cpQ0jLEg
+
+added: Sun Feb  3 18:30:03 GMT 2019
+
 ### At Eternity's Gate (Original Motion Picture Soundtrack) [film](https://en.wikipedia.org/wiki/At_Eternity%27s_Gate_(film))
 
 > “I don't know anything with certainty, but seeing the stars makes me dream.”  ― Vincent Van Gogh

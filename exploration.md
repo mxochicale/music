@@ -1,6 +1,35 @@
 Exploration and collection of FREQUENCIES THAT MY BRAIN CAN sometimes *TOLERABLY* LISTEN TO
 ---
 
+
+### Blackway & Black Caviar - "What's Up Danger"
+
+> I like it when trouble brews, I won’t dare change
+> I like it when there’s turbulence on my airplanes
+> I like it when I sense things I can’t see yet
+> Swimmin' with sharks when they ain't feed yet
+> 'Cause I like high chances that I might lose
+> I like it all on the edge just like you, ayy
+> I like tall buildings so I can leap off of 'em
+
+> What's up, danger?
+> Yeah, what's up, danger?
+> Can't stop me now, yeah
+
+https://www.youtube.com/watch?v=Y88LVU7MAe4
+
+Spider-Man: Into the Spider-Verse (2018) - Full soundtrack [All songs] 
+https://www.youtube.com/watch?v=Vz3RYBtlGmM 
+
+
+* https://en.wikipedia.org/wiki/Spider-Man:_Into_the_Spider-Verse
+* https://en.wikipedia.org/wiki/Spider-Man:_Into_the_Spider-Verse_(soundtrack)
+
+
+Fri Mar 22 14:16:18 GMT 2019
+
+
+
 ### First Man (Original Motion Picture Soundtrack) 
 [First Man](https://en.wikipedia.org/wiki/First_Man_(film)) 
 (Original Motion Picture Soundtrack) by [Justin Hurwitz](https://en.wikipedia.org/wiki/Justin_Hurwitz).
